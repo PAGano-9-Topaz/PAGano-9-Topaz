@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PAGano-9-Topaz
 - 👀 I’m interested in ... Food
 - 🌱 I’m currently learning ... School
-- 💞️ I’m looking to collaborate on ... Life
+- 💞️ I’m looking to collaborate on ... None
 - 📫 How to reach me ... Dont
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I was 1 day old when i was born
